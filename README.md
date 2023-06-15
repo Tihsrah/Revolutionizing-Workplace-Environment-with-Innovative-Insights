@@ -1,6 +1,8 @@
 # Revolutionizing-Workplace-Environment-with-Innovative-Insights
 
-**MODELS ARE NOT HERE DUE TO SIZE ISSUE FOR THAT CHECK MY ONE_DRIVE: https://upesstd-my.sharepoint.com/:f:/g/personal/500082340_stu_upes_ac_in/ErmlLEuJgrdLnMIgfYdjjBEB3-WZzWLbwDbSO2cFQuRYzQ?e=S7Li0g**
+**MODELS ARE NOT HERE DUE TO SIZE ISSUE FOR THAT CHECK MY ONE_DRIVE: https://upesstd-my.sharepoint.com/:f:/g/personal/500082340_stu_upes_ac_in/ErmlLEuJgrdLnMIgfYdjjBEB3-WZzWLbwDbSO2cFQuRYzQ?e=S7Li0g
+EXPLANATION VIDEO : https://youtu.be/5G3vLR3AZak
+**
 
 
 📢 Greetings! You may have heard about the Puspal Roy incident at HDFC Bank , where a manager verbally abused staff members for not meeting company goals.
